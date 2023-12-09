@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @sidsagari
-- 👀 I’m interested in Audio Programming, Music Production & anything else that piques my curiosity
+- 👀 I’m interested in anything that piques my curiosity
 - 🌱 I’m currently majoring in ECE at PES University with Minor in CSE
 - 📫 Reach me via email: sidsagareyt@gmail.com
